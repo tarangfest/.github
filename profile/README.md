@@ -1,4 +1,4 @@
-![image](https://github.com/tarangfest/.github/assets/68912239/a64fb5d3-e6d0-499b-9763-83bb5eff0ebb)
+![image](https://github.com/tarangfest/.github/assets/68912239/535ff363-7342-4219-9884-af10c8e7737f)
 
 
 This is the Premier Cultural fest of IIIT Jabalpur organized for the students by the students.
